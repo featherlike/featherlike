@@ -4,7 +4,7 @@
   <div align="center">
 
 [atabook](https://sexual4.atabook.org/)
-[rentry]()
+[rentry](https://rentry.co/featheredlike)
 </div>
   <p align="center">
   <sup>credits: @tadoyaki on twt</sup>
