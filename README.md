@@ -4,7 +4,6 @@
   <div align="center">
 
 [atabook](https://sexual4.atabook.org/)
-[rentry]()
 </div>
   <p align="center">
   <sup>credits: @tadoyaki on twt</sup>
