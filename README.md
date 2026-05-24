@@ -4,6 +4,7 @@
   <div align="center">
 
 [atabook](https://sexual4.atabook.org/)
+[prns](https://pronouns.cc/@cartwingsduo)
 </div>
   <p align="center">
   <sup>credits: @tadoyaki on twt</sup>
