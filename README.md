@@ -3,7 +3,7 @@
   </div>
   <div align="center">
 
-[atabook](https://parallelismduo.atabook.org/)
+[atabook](https://sexual4.atabook.org/)
 [prns](https://pronouns.cc/@paraduo)
 </div>
   <p align="center">
